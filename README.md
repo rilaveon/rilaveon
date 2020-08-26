@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+![что ето](https://github-readme-stats.vercel.app/api?username=rilaveon&show_icons=true)
 
 **rilaveon/rilaveon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
