@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... ![Ваш пенис, сер](https://cdn.betterttv.net/emote/5ec1885bec17d81685a538bc/1x)
 - 📫 How to reach me: ... ![Ваш пенис, сер](https://cdn.betterttv.net/emote/5ec1885bec17d81685a538bc/1x)
 - 😄 Pronouns: ... ![Ваш пенис, сер](https://cdn.betterttv.net/emote/5ec1885bec17d81685a538bc/1x)
-- ⚡ Fun fact: ... ![Ваш пенис, сер](https://cdn.betterttv.net/emote/5ee239c7924aa35e32a7a1ef/1x)
+- ⚡ Fun fact: ... ![Ваш пенис, сер](https://cdn.betterttv.net/emote/5f6a1aba3277fd70b018b480/1x)
 
